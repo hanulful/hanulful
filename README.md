@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning ... Everything that makes me happy.
 
-- 💞️ I’m looking to collaborate on ... Pretty Cute Sexy girl (I know, I can't)
+- 💞️ I’m looking to collaborate on ... Pretty Cute Sexy girl (I know what you wanna say. leave me alone)
 
 - 📫 How to reach me ... You can't
 
